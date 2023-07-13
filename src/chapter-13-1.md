@@ -1,4 +1,4 @@
-Chapter 9: Cultivating Gratitude: The Benefits of Gratitude
+The Benefits of Gratitude
 ===========================================================
 
 Gratitude is a powerful practice that can enhance well-being, improve relationships, and cultivate a positive mindset. In this chapter, we will explore the benefits of gratitude and how to cultivate gratitude in your daily life.

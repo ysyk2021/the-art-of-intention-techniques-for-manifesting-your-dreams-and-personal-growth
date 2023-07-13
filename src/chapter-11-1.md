@@ -1,4 +1,4 @@
-Chapter 7: Intentional Living: The Principles of Intentional Living
+The Principles of Intentional Living
 ===================================================================
 
 Intentional living is a way of life that involves making deliberate choices and taking intentional actions towards our desired outcomes. It involves aligning our actions with our values and passions, and living in a way that supports our personal growth and development. In this chapter, we will explore the principles of intentional living.

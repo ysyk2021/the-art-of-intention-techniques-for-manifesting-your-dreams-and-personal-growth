@@ -1,4 +1,4 @@
-Chapter 6: Affirmation Techniques: Using Affirmations to Overcome Limiting Beliefs
+Using Affirmations to Overcome Limiting Beliefs
 ==================================================================================
 
 Limiting beliefs are negative thoughts or beliefs that can hold us back from achieving our goals and manifesting our dreams. They can stem from past experiences, societal conditioning, or self-doubt. In this chapter, we will explore techniques for using affirmations to overcome limiting beliefs.

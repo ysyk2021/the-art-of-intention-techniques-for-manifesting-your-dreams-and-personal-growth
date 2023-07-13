@@ -1,4 +1,4 @@
-Chapter 5: Mindful Meditation Techniques: Self-Compassion Meditation
+Self-Compassion Meditation
 ====================================================================
 
 Self-compassion meditation is a powerful mindfulness technique that cultivates feelings of kindness, acceptance, and compassion towards oneself. In this chapter, we will explore the benefits of self-compassion meditation and how to practice it.

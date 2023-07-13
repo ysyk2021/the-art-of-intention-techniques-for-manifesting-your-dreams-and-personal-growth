@@ -1,4 +1,4 @@
-Chapter 8: Building Positive Habits: The Science of Habit Formation
+The Science of Habit Formation
 ===================================================================
 
 Building positive habits is essential for personal growth and achieving our goals. But what exactly happens in our brains when we form a habit? In this chapter, we will explore the science of habit formation and how it can help us build positive habits.

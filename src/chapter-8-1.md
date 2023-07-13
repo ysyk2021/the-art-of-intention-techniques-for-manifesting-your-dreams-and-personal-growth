@@ -1,4 +1,4 @@
-Chapter 5: Mindful Meditation Techniques: Body Scan Meditation
+Body Scan Meditation
 ==============================================================
 
 Body scan meditation is a mindfulness technique that involves paying attention to different parts of the body and noticing physical sensations without judgment. In this chapter, we will explore the benefits of body scan meditation and how to practice it.

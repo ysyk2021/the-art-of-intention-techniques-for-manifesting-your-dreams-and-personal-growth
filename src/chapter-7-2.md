@@ -1,4 +1,4 @@
-Chapter 4: Visualization Techniques: Guided Imagery
+Guided Imagery
 ===================================================
 
 Visualization is a powerful technique for manifesting one's dreams and promoting personal growth. Guided imagery is a form of visualization that involves using mental images to promote relaxation, healing, and personal growth. In this chapter, we will explore guided imagery and how it can be used to promote personal growth.

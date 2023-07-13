@@ -1,4 +1,4 @@
-Chapter 1: The Science of Intention: The Neuroscience of Intention
+The Neuroscience of Intention
 ==================================================================
 
 Intention is a mental state that involves a conscious decision to act in a particular way. It provides direction and purpose for our actions, helping us stay focused on our goals and aspirations. In this chapter, we will explore the neuroscience behind intention and how it impacts our brains.

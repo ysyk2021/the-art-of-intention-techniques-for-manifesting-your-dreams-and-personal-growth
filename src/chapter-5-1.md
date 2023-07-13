@@ -1,4 +1,4 @@
-Chapter 3: Setting Powerful Intentions: How to Set Clear and Concise Intentions
+How to Set Clear and Concise Intentions
 ===============================================================================
 
 Setting clear and concise intentions is crucial for manifesting our dreams and achieving personal growth. In this chapter, we will explore tips for setting clear and concise intentions.

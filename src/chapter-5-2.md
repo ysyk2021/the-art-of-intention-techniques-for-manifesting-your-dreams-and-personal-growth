@@ -1,4 +1,4 @@
-Chapter 3: Setting Powerful Intentions: The Importance of Aligning Intentions with Values
+The Importance of Aligning Intentions with Values
 =========================================================================================
 
 Setting intentions is a powerful tool for manifesting our dreams and achieving personal growth. However, to be effective, intentions must be aligned with our values and passions. In this chapter, we will explore the importance of aligning intentions with values and how to do so.

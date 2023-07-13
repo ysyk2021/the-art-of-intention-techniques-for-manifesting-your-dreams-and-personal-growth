@@ -1,4 +1,4 @@
-Chapter 8: Building Positive Habits: How to Build Positive Habits that Support Your Intentions
+How to Build Positive Habits that Support Your Intentions
 ==============================================================================================
 
 Building positive habits is essential for personal growth and achieving our goals. In this chapter, we will explore how to build positive habits that support your intentions.

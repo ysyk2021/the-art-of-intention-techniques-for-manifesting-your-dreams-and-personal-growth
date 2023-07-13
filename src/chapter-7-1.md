@@ -1,4 +1,4 @@
-Chapter 4: Visualization Techniques: Creative Visualization
+Creative Visualization
 ===========================================================
 
 Creative visualization is a technique for using mental imagery to manifest one's desires and promote personal growth. It involves creating vivid mental images of the desired outcome, and using these images to align thoughts, emotions, and actions towards achieving the goal. In this chapter, we will explore creative visualization and how it can be used to promote personal growth.

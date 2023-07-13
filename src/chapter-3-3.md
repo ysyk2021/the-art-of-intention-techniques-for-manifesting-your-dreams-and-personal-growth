@@ -1,4 +1,4 @@
-Chapter 1: The Science of Intention: The Benefits of Setting Intentions
+The Benefits of Setting Intentions
 =======================================================================
 
 Intention is a mental state that involves a conscious decision to act in a particular way. By setting clear intentions, we can focus our energy and attention on what truly matters to us and take deliberate actions towards achieving our desired outcomes. In this chapter, we will explore the benefits of setting intentions for personal growth and success.

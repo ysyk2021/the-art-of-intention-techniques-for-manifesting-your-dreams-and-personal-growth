@@ -1,4 +1,4 @@
-Chapter 7: Intentional Living: Strategies for Living a More Intentional Life
+Strategies for Living a More Intentional Life
 ============================================================================
 
 Intentional living involves living with purpose and alignment towards one's values and intentions. It can be challenging to break old habits and routines that do not align with our desires and goals, but there are strategies that can be implemented to live a more intentional life. In this chapter, we will explore some strategies for living a more intentional life.

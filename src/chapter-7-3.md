@@ -1,4 +1,4 @@
-Chapter 4: Visualization Techniques: Vision Boarding
+Vision Boarding
 ====================================================
 
 Visualization is a powerful technique for manifesting our dreams and achieving personal growth. In this chapter, we will explore the benefits of visualization and how to create a vision board.

@@ -1,7 +1,6 @@
 # Summary
 
 - [Introduction](README.md)
-- [Introduction](chapter-1.md)
   - [What is intention?](chapter-1-1.md)
   - [How does intention differ from goal-setting?](chapter-1-2.md)
   - [Why is intention important for personal growth?](chapter-1-3.md)
@@ -45,9 +44,5 @@
   - [The benefits of gratitude](chapter-13-1.md)
   - [Techniques for cultivating gratitude](chapter-13-2.md)
   - [Using gratitude to support your intentions](chapter-13-3.md)
-- [Conclusion](chapter-14.md)
-  - [Recap of key takeaways](chapter-14-1.md)
-  - [Tips for integrating intention into your daily life](chapter-14-2.md)
-  - [Final thoughts on the power of intention for manifesting your dreams and personal growth](chapter-14-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)

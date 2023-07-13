@@ -1,4 +1,4 @@
-Introduction: How Does Intention Differ from Goal-Setting?
+How Does Intention Differ from Goal-Setting?
 ==========================================================
 
 Intention and goal-setting are often used interchangeably, but they have distinct differences. While both involve setting a desired outcome, intention involves aligning one's thoughts, emotions, and actions towards achieving that outcome. In this chapter, we will explore the differences between intention and goal-setting.

@@ -1,4 +1,4 @@
-Chapter 3: Setting Powerful Intentions: Tips for Staying Motivated and Focused on Your Intentions
+Tips for Staying Motivated and Focused on Your Intentions
 =================================================================================================
 
 Setting powerful intentions is a crucial step towards manifesting our dreams and achieving personal growth. However, staying motivated and focused on our intentions can be challenging at times. In this chapter, we will explore tips for staying motivated and focused on your intentions.

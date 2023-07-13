@@ -1,4 +1,4 @@
-Chapter 2: Overcoming Resistance to Intention: The Role of Mindfulness in Setting Intentions
+The Role of Mindfulness in Setting Intentions
 ============================================================================================
 
 Setting intentions can be challenging, especially when we face resistance and self-doubt. In this chapter, we will explore the role of mindfulness in overcoming resistance to intention and staying focused on our goals.

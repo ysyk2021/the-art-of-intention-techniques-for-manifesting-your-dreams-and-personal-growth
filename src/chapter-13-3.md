@@ -1,4 +1,4 @@
-Chapter 9: Cultivating Gratitude: Using Gratitude to Support Your Intentions
+Using Gratitude to Support Your Intentions
 ============================================================================
 
 Cultivating gratitude is a powerful tool for supporting your intentions and achieving personal growth. In this chapter, we will explore how to use gratitude to support your intentions.

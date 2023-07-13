@@ -1,4 +1,4 @@
-Chapter 2: Overcoming Resistance to Intention: Strategies for Overcoming Resistance
+Strategies for Overcoming Resistance
 ===================================================================================
 
 Resistance is a common barrier to setting and achieving intentions. It can manifest as self-doubt, procrastination, fear, or other negative emotions that hold us back from taking deliberate action towards our desired outcomes. In this chapter, we will explore strategies for overcoming resistance to intention.

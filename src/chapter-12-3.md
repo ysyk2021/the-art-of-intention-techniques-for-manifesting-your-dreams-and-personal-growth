@@ -1,4 +1,4 @@
-Chapter 8: Building Positive Habits: Tips for Maintaining Positive Habits Over Time
+Tips for Maintaining Positive Habits Over Time
 ===================================================================================
 
 Positive habits are essential for personal growth and achieving our goals. However, building and maintaining positive habits can be challenging. In this chapter, we will explore tips for maintaining positive habits over time.

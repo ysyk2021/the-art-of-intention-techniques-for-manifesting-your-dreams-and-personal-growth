@@ -1,4 +1,4 @@
-Chapter 5: Mindful Meditation Techniques: Loving-Kindness Meditation
+Loving-Kindness Meditation
 ====================================================================
 
 Loving-kindness meditation is a powerful mindfulness technique that cultivates feelings of love, kindness, and compassion towards oneself and others. In this chapter, we will explore the benefits of loving-kindness meditation and how to practice it.

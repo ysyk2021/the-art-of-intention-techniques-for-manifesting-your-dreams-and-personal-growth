@@ -1,4 +1,4 @@
-Chapter 1: The Science of Intention: The Psychology of Intention
+The Psychology of Intention
 ================================================================
 
 Intention is a powerful force that can impact our thoughts, emotions, and behaviors. In this chapter, we will explore the psychology behind intention and how it influences our lives.

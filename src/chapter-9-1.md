@@ -1,4 +1,4 @@
-Chapter 6: Affirmation Techniques: How to Create Effective Affirmations
+How to Create Effective Affirmations
 =======================================================================
 
 Affirmations are positive statements that can help reprogram your subconscious beliefs and develop a more positive mindset. In this chapter, we will explore techniques for creating effective affirmations.

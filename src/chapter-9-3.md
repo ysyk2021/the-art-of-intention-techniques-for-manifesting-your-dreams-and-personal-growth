@@ -1,4 +1,4 @@
-Chapter 6: Affirmation Techniques: Tips for Incorporating Affirmations into Your Daily Routine
+Tips for Incorporating Affirmations into Your Daily Routine
 ==============================================================================================
 
 Affirmations are a powerful tool for reprogramming our subconscious beliefs and supporting our intentions for personal growth and success. However, to be effective, affirmations need to be incorporated into our daily routine. In this chapter, we will explore tips for incorporating affirmations into your daily routine.

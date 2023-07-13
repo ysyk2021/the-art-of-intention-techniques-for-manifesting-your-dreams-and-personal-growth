@@ -1,4 +1,4 @@
-Introduction: What is Intention?
+What is Intention?
 ================================
 
 Intention is a powerful force that can help individuals manifest their dreams and achieve personal growth. It involves setting a clear and focused goal or desire and aligning one's thoughts, emotions, and actions towards achieving it. In this book, we will explore the art of intention and various techniques for using intention to promote personal growth.
