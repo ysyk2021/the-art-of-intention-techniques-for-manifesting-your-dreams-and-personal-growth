@@ -12,7 +12,6 @@ In today's fast-paced world, it's easy to get caught up in the hustle and bustle
 
 In summary, "The Art of Intention" is your ultimate guide to achieving personal growth, manifesting your dreams, and unlocking your full potential. We invite you to embark on this transformative journey and discover the power of intention for yourself!
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
