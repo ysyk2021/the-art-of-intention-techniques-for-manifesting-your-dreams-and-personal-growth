@@ -34,7 +34,7 @@ Understanding the science of habit formation can help us build positive habits m
 
 By incorporating these strategies into your approach to building positive habits, you can strengthen the habit loop and make positive behaviors more automatic and habitual.
 
-Conclusion: Building Positive Habits with the Science of Habit Formation
+Conclusion
 ------------------------------------------------------------------------
 
 Understanding the science of habit formation can help us build positive habits more effectively. By identifying cues and rewards, starting small, focusing on consistency, using positive self-talk, and finding accountability and support, we can strengthen the habit loop and make positive behaviors more automatic and habitual. With commitment and dedication, we can build positive habits that lead to personal growth and success.

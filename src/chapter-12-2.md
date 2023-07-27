@@ -34,7 +34,7 @@ Celebrating successes and learning from setbacks is crucial when building positi
 
 By incorporating these strategies into your approach to building positive habits, you can support your intentions and achieve personal growth and success.
 
-Conclusion: Building Positive Habits that Support Your Intentions
+Conclusion
 -----------------------------------------------------------------
 
 Building positive habits that support your intentions is essential for achieving personal growth and success. By identifying habits that align with your desired outcomes, starting small and building momentum, creating accountability, practicing consistency, and celebrating successes and learning from setbacks, you can build positive habits that support your intentions and lead to greater fulfillment in life.

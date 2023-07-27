@@ -43,7 +43,7 @@ Here are some ways to incorporate mindfulness into setting intentions:
 
 By incorporating mindfulness into your approach to setting intentions, you can cultivate greater self-awareness, reduce resistance, and ultimately manifest your dreams and achieve personal growth.
 
-Conclusion: Overcoming Resistance and Setting Clear Intentions
+Conclusion
 --------------------------------------------------------------
 
 Overcoming resistance to setting intentions is crucial for manifesting our dreams and achieving personal growth. By identifying common obstacles, using strategies to overcome resistance, and incorporating mindfulness into our approach, we can set clear and meaningful intentions that are aligned with our authentic selves. With commitment and dedication, we can achieve our desired outcomes and live a fulfilling life.

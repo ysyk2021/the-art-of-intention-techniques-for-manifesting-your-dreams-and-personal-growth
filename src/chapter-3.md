@@ -28,7 +28,7 @@ Setting intentions can have numerous benefits, including:
 * Improving emotional regulation: Intention can help us regulate our emotions by providing a sense of purpose and meaning in our lives.
 * Boosting resilience: By setting intentions, we can develop a sense of resilience that helps us bounce back from setbacks and challenges.
 
-Conclusion: The Science of Intention
+Conclusion
 ------------------------------------
 
 Intention is a powerful force that can help us achieve our goals and manifest our dreams. By understanding the psychology and neuroscience behind intention, as well as the benefits of setting intentions, we can harness its power to enhance our personal growth and success.

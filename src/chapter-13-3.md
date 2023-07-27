@@ -32,7 +32,7 @@ Here are some strategies for cultivating gratitude:
 
 By incorporating these strategies into your approach to cultivating gratitude, you can support your intentions and achieve personal growth and success.
 
-Conclusion: Using Gratitude to Support Your Intentions
+Conclusion
 ------------------------------------------------------
 
 Cultivating gratitude is a powerful tool for supporting your intentions and achieving personal growth. By practicing gratitude, you can stay present, boost your mood, promote resilience, and strengthen relationships. Incorporating strategies such as keeping a gratitude journal, expressing gratitude towards others, practicing mindfulness, and using positive self-talk can help you cultivate gratitude and achieve greater fulfillment in life.

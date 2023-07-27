@@ -48,7 +48,7 @@ Here are some tips for creating a vision board:
 
 By using vision boarding, you can harness the power of intention and create a physical representation of your desired outcomes, providing a daily reminder of what you want to achieve and helping you stay motivated towards your goals.
 
-Conclusion: Harnessing the Power of Intention through Visualization Techniques
+Conclusion
 ------------------------------------------------------------------------------
 
 Visualization techniques such as creative visualization, guided imagery, and vision boarding can be powerful tools for harnessing the power of intention and achieving personal growth. By creating a clear mental image of your desired outcomes, you can stay motivated and focused on your goals, ultimately leading to greater success and fulfillment in life.

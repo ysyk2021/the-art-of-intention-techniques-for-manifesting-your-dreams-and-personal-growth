@@ -31,7 +31,7 @@ Gratitude meditation involves using mindfulness techniques to focus on feelings 
 
 To practice gratitude meditation, find a quiet space to sit down and close your eyes. Begin by focusing on your breath and allowing yourself to relax. Then, start to bring to mind things you are grateful for, whether they are people, experiences, or material possessions. As you focus on each item, allow yourself to feel a sense of gratitude and appreciation. Try to maintain this feeling of gratitude throughout your meditation practice.
 
-Conclusion: Techniques for Cultivating Gratitude
+Conclusion
 ------------------------------------------------
 
 Cultivating gratitude is a powerful tool for achieving personal growth and supporting our intentions. By using techniques such as gratitude journaling, gratitude letters, gratitude walks, and gratitude meditation, we can train our brains to focus more on the positive and develop a sense of appreciation for what we have. Incorporating these practices into our daily routines can help us cultivate gratitude and lead to greater fulfillment in life.

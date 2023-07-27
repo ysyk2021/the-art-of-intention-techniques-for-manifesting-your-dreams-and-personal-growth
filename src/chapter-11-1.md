@@ -28,7 +28,7 @@ Growth Mindset
 
 Having a growth mindset is another important principle of intentional living. This involves believing that we can learn and grow from our experiences, and embracing challenges as opportunities for growth. By having a growth mindset, we can overcome obstacles and achieve personal growth and success.
 
-Conclusion: The Principles of Intentional Living
+Conclusion
 ------------------------------------------------
 
 Intentional living involves making deliberate choices and taking intentional actions towards our desired outcomes. The principles of intentional living include mindfulness, clarity of purpose, authenticity, gratitude, and a growth mindset. By incorporating these principles into our daily lives, we can cultivate a deeper sense of purpose and meaning, and achieve personal growth and success.

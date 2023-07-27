@@ -29,7 +29,7 @@ Here are some practical ways to cultivate gratitude in your daily life:
 
 By consistently practicing gratitude, you can cultivate a more positive and abundant mindset, improve your relationships, and enhance your overall well-being.
 
-Conclusion: Embracing the Power of Gratitude
+Conclusion
 --------------------------------------------
 
 Cultivating gratitude is a simple yet powerful practice that can enhance your life in countless ways. By focusing on what you're thankful for, expressing appreciation to others, and incorporating gratitude into your daily routine, you can shift your mindset towards positivity and abundance, and ultimately create a more fulfilling life.
