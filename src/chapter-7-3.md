@@ -3,11 +3,6 @@ Vision Boarding
 
 In this chapter, we will delve into the powerful practice of vision boarding as a technique for manifesting your dreams and fostering personal growth. A vision board is a visual representation of your intentions and desires, serving as a constant reminder and catalyst for bringing them to life.
 
-Understanding the Power of Visualization
-----------------------------------------
-
-Visualization is a technique used to create a mental image of what you want to manifest in your life. It harnesses the power of your imagination and taps into the law of attraction. By visualizing your goals and desires, you align your thoughts, emotions, and actions with the reality you wish to create.
-
 What is a Vision Board?
 -----------------------
 

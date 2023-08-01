@@ -50,4 +50,3 @@ Integrating Self-Compassion Meditation into Your Manifestation Journey
 Self-compassion meditation plays a vital role in the manifestation of your dreams and personal growth. By practicing self-compassion, you create a loving and supportive relationship with yourself, aligning your intentions with your self-worth and self-love. This alignment enhances your manifesting power and allows you to attract positive experiences and opportunities aligned with your desires.
 
 Throughout your manifestation journey, remember to embrace self-acceptance, nurture emotional resilience, release self-judgment, cultivate self-worth, and prioritize your emotional well-being. Allow self-compassion meditation to be a transformative practice that deepens your connection with yourself and amplifies your ability to manifest your dreams and live a fulfilling life.
-> "May I be kind to myself. May I nurture love and compassion within. May I manifest my dreams with grace and ease."

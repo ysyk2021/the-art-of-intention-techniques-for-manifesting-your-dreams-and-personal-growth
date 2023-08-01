@@ -46,4 +46,3 @@ Incorporating Loving-Kindness Meditation into Manifestation
 Loving-kindness meditation beautifully complements the manifestation process. By incorporating this practice, you infuse your intentions with love, compassion, and positive energy. It creates a harmonious alignment between your desires and your connection with the world around you, amplifying your manifesting power.
 
 Throughout your manifestation journey, remember to cultivate self-love, extend kindness towards others, release negativity, and embrace emotional resilience. Embrace loving-kindness meditation as a powerful tool for personal growth, manifesting your dreams, and creating a more loving and connected world.
-> "May all beings be happy, healthy, safe, and live with ease."
