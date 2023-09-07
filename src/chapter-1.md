@@ -1,5 +1,3 @@
-Introduction
-============
 
 Intention is a powerful force that can help us achieve our goals and manifest our dreams. By setting clear intentions, we can focus our energy and attention on what truly matters to us and take deliberate actions towards our desired outcomes. In this book, we will explore techniques for harnessing the power of intention to achieve personal growth and success.
 

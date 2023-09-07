@@ -1,5 +1,3 @@
-Chapter 4: Visualization Techniques
-===================================
 
 Visualization is a powerful technique for harnessing the power of intention. By visualizing our desired outcomes, we can create a clear mental image of what we want to achieve, which can help us stay motivated and focused on our goals. In this chapter, we will explore creative visualization, guided imagery, and vision boarding as techniques for harnessing the power of intention through visualization.
 

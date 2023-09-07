@@ -1,5 +1,3 @@
-Guided Imagery
-=======================
 
 Guided imagery is a powerful technique that can enhance the effectiveness of your intention practice. In this chapter, we will explore how guided imagery can be used as a tool for manifesting your dreams and fostering personal growth. Through the use of vivid mental imagery, you will tap into the power of your imagination to create a more potent and vivid experience of your intentions.
 

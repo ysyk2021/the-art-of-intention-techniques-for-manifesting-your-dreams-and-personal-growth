@@ -1,5 +1,3 @@
-Chapter 6: Affirmation Techniques
-=================================
 
 Affirmations are powerful tools that can help you shift your mindset, overcome limiting beliefs, and manifest your dreams. In this chapter, we will explore how to create effective affirmations, how to use affirmations to overcome limiting beliefs, and tips for incorporating affirmations into your daily routine.
 

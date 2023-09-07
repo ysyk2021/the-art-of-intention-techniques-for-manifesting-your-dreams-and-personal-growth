@@ -1,5 +1,3 @@
-Self-Compassion Meditation
-===================================
 
 In this chapter, we will explore the practice of self-compassion meditation and its profound impact on manifesting your dreams and fostering personal growth. Self-compassion is a powerful tool that allows you to cultivate kindness, understanding, and acceptance towards yourself, creating a nurturing foundation for your intentions and desires.
 

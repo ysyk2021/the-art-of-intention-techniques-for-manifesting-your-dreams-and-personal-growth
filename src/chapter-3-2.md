@@ -1,5 +1,3 @@
-The Neuroscience of Intention
-======================================
 
 In recent years, neuroscience has shed light on the profound effects of intention on the brain and its ability to shape our reality. In this chapter, we will explore the fascinating field of neuroplasticity and how understanding the neuroscience of intention can empower you to manifest your dreams and foster personal growth.
 

@@ -1,5 +1,3 @@
-What is Intention?
-=============================
 
 Intention is the driving force behind the manifestation of our dreams and the catalyst for personal growth. It is the conscious choice to direct our thoughts, emotions, and actions towards a specific desired outcome. In this chapter, we will explore the concept of intention and its significance in shaping our reality.
 

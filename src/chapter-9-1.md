@@ -1,5 +1,3 @@
-How to Create Effective Affirmations
-=============================================
 
 Affirmations are powerful tools that can help us rewire our mindset, overcome self-limiting beliefs, and manifest our desires. In this chapter, we will explore techniques for creating effective affirmations that have a transformative impact on our thoughts, emotions, and actions.
 

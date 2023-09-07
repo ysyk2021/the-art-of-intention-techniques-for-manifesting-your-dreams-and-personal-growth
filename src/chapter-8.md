@@ -1,5 +1,3 @@
-Chapter 5: Mindful Meditation Techniques
-========================================
 
 Meditation is a powerful tool for cultivating mindfulness, reducing stress, and enhancing overall well-being. In this chapter, we will explore three mindful meditation techniques: body scan meditation, loving-kindness meditation, and self-compassion meditation.
 

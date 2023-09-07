@@ -1,5 +1,3 @@
-How to Set Clear and Concise Intentions
-==================================================
 
 In this chapter, we will explore the importance of setting clear and concise intentions in manifesting your dreams and fostering personal growth. By honing in on precisely what you want to bring into your life, you can align your energy and focus towards achieving your desired outcomes.
 

@@ -1,5 +1,3 @@
-Body Scan Meditation
-=============================
 
 In this chapter, we will explore the practice of Body Scan Meditation as a powerful technique for deep relaxation, mindfulness, and self-awareness. Body Scan Meditation involves systematically scanning and bringing attention to each part of the body, promoting a sense of relaxation, and cultivating a mind-body connection. Through this practice, you can enhance your overall well-being, reduce stress, and develop a greater sense of presence in your daily life.
 

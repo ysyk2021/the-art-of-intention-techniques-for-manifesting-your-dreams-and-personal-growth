@@ -1,5 +1,3 @@
-Chapter 2: Overcoming Resistance to Intention
-=============================================
 
 Resistance to intention can arise from a variety of sources, including fear, self-doubt, and external obstacles. In this chapter, we will explore common obstacles to setting intentions, strategies for overcoming resistance, and the role of mindfulness in setting intentions.
 
@@ -47,5 +45,4 @@ Conclusion
 --------------------------------------------------------------
 
 Overcoming resistance to setting intentions is crucial for manifesting our dreams and achieving personal growth. By identifying common obstacles, using strategies to overcome resistance, and incorporating mindfulness into our approach, we can set clear and meaningful intentions that are aligned with our authentic selves. With commitment and dedication, we can achieve our desired outcomes and live a fulfilling life.
-
 

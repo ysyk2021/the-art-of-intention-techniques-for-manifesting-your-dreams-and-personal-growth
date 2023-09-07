@@ -1,5 +1,3 @@
-Tips for Incorporating Affirmations into Your Daily Routine
-====================================================================
 
 Incorporating affirmations into your daily routine is an effective way to harness the power of positive thinking and manifest your dreams. Consistent practice can transform your mindset, enhance self-belief, and propel you towards personal growth and success. In this chapter, we will explore practical tips to help you seamlessly integrate affirmations into your daily life.
 

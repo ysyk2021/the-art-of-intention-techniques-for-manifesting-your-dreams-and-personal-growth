@@ -1,5 +1,3 @@
-Using Affirmations to Overcome Limiting Beliefs
-========================================================
 
 Limiting beliefs often hold us back from reaching our full potential and manifesting our dreams. In this chapter, we will explore how affirmations can be utilized as a powerful tool to identify, challenge, and overcome these limiting beliefs, ultimately paving the way for personal growth and transformation.
 

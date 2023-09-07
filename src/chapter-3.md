@@ -1,5 +1,3 @@
-Chapter 1: The Science of Intention
-===================================
 
 Intention is a powerful force that can help us achieve our goals and manifest our dreams. In this chapter, we will explore the science of intention, including the psychology and neuroscience behind it, as well as the benefits of setting intentions.
 

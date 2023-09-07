@@ -1,5 +1,3 @@
-Techniques for Cultivating Gratitude
-======================================================================
 
 Cultivating gratitude is a powerful tool for supporting our intentions and achieving personal growth. In this chapter, we will explore techniques for cultivating gratitude.
 

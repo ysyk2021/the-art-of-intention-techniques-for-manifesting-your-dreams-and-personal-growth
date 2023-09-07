@@ -1,5 +1,3 @@
-The Role of Mindfulness in Setting Intentions
-========================================================
 
 In this chapter, we will explore the profound impact of mindfulness on setting intentions and its significance in manifesting our dreams and fostering personal growth.
 

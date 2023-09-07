@@ -1,5 +1,3 @@
-Loving-Kindness Meditation
-=====================================
 
 Loving-kindness meditation, also known as metta meditation, is a powerful practice that cultivates compassion, love, and kindness towards ourselves and others. In this chapter, we will explore the transformative effects of loving-kindness meditation and how it can contribute to manifesting our dreams and fostering personal growth.
 

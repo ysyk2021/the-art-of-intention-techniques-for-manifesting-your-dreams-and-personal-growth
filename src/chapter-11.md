@@ -1,5 +1,3 @@
-Chapter 7: Intentional Living
-=============================
 
 Living an intentional life means being deliberate and purposeful about your actions, thoughts, and beliefs. In this chapter, we will explore the principles of intentional living, strategies for incorporating intentional living into your daily routine, and the benefits of living a more intentional life.
 

@@ -1,5 +1,3 @@
-How Does Intention Differ from Goal-Setting?
-=====================================================
 
 Intentions and goal-setting are both powerful tools for manifesting our dreams and fostering personal growth. While they may seem similar, there are distinct differences between the two approaches. In this chapter, we will explore how intention and goal-setting differ and how you can harness the benefits of each to create a fulfilling life.
 

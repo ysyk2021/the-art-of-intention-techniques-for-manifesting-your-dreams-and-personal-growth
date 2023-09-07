@@ -1,5 +1,3 @@
-Chapter 9: Cultivating Gratitude
-================================
 
 Cultivating gratitude is a powerful technique for promoting personal growth and manifesting one's desires. By focusing on the positive aspects of life, individuals can cultivate a mindset of abundance and attract more positivity into their lives. In this chapter, we will explore the benefits of gratitude, techniques for cultivating gratitude, and how to use gratitude to support your intentions.
 

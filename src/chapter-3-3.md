@@ -1,5 +1,3 @@
-The Benefits of Setting Intentions
-===========================================
 
 Setting intentions is a transformative practice that can positively impact various aspects of your life. In this chapter, we will explore the numerous benefits of setting intentions and how they can empower you to manifest your dreams and foster personal growth.
 

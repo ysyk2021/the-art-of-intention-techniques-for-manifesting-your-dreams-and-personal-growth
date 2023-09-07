@@ -1,5 +1,3 @@
-Strategies for Overcoming Resistance
-================================================
 
 In this chapter, we will explore effective strategies for overcoming resistance on the path to manifesting your dreams and personal growth. Resistance often arises when we encounter obstacles, self-doubt, or fear. Understanding and addressing resistance is vital to move forward and align ourselves with the intentions we have set.
 

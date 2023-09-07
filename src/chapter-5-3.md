@@ -1,5 +1,3 @@
-Tips for Staying Motivated and Focused on Your Intentions
-=====================================================================
 
 In this chapter, we will explore valuable tips and techniques to help you stay motivated, maintain focus, and cultivate unwavering dedication towards manifesting your dreams and fostering personal growth.
 

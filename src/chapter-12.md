@@ -1,5 +1,3 @@
-Chapter 8: Building Positive Habits
-===================================
 
 Building positive habits is a powerful tool for promoting personal growth and manifesting one's desires. By creating positive habits that support our intentions, we can align our thoughts, emotions, and actions towards achieving our goals. In this chapter, we will explore the science of habit formation, how to build positive habits that support your intentions, and tips for maintaining positive habits over time.
 

@@ -1,5 +1,3 @@
-Chapter 3: Setting Powerful Intentions
-======================================
 
 Setting powerful intentions is a key aspect of manifesting your dreams and achieving personal growth. In this chapter, we will explore how to set clear and concise intentions, the importance of aligning intentions with values, and tips for staying motivated and focused on your intentions.
 
@@ -37,5 +35,4 @@ Here are some tips for staying motivated and focused on your intentions:
 By incorporating these tips into your daily routine, you can stay motivated and focused on your intentions, and ultimately achieve your desired outcomes.
 
 Setting powerful intentions is an essential step in manifesting your dreams and achieving personal growth. By setting clear and concise intentions, aligning them with your values, and staying motivated and focused on them, you can create the life you truly desire.
-
 

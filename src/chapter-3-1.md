@@ -1,5 +1,3 @@
-The Psychology of Intention
-====================================
 
 Understanding the psychology behind intention is crucial for effectively harnessing its power to manifest our dreams and foster personal growth. In this chapter, we will delve into the psychological aspects of intention, exploring how our beliefs, mindset, and subconscious play a vital role in shaping our intentions and their outcomes.
 
