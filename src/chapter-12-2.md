@@ -1,5 +1,4 @@
-Chapter: How to Build Positive Habits That Support Your Intentions
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------

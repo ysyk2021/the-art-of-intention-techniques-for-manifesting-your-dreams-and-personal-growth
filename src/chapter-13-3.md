@@ -1,5 +1,4 @@
-Chapter: Using Gratitude to Support Your Intentions
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------
